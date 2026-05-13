@@ -1,4 +1,4 @@
-
+Surfshark premium App: server-locations & server-switching offers the most advanced Surfshark app, with server-locations and server-switching. Ideal for users who value privacy
 
 
 
